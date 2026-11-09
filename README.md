@@ -1,3 +1,3 @@
-# Articulo_MERGE_Environmental_VR_LAS VILLANAS 
-Investigación académica – Primera investigación
-GRUPO 8
+# Articulo_Bitacora_Minuta
+Investigación académica – Trabajo de investigación
+GRUPO 8_ las villanas
