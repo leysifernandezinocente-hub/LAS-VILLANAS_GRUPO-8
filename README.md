@@ -1,2 +1,2 @@
-# investigacion-academica-2026
+# Articulo_MERGE_Environmental_VR
 Investigación académica – Primera investigación
